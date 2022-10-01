@@ -16,7 +16,7 @@ Harus Kasih Star Dulu Sebelum Pakai Awokawok 🗿
 # PAKE DOANG NGGA FOLLOW PARAH! 
  
 Logo Login 🔥 
- ![Screenshot_2022-09-28-22-07-46-718_com termux](https://user-images.githubusercontent.com/114341732/192839914-b4df8485-3e24-4cb4-9e64-420901888f83.jpg)
+ ![Screenshot_2022-10-01-15-37-43-672_com termux](https://user-images.githubusercontent.com/114341732/193401117-e53871bc-4ecd-43d8-b47a-6880c1063cb6.jpg)
  
 Logo Dalem 🔥 
  ![Screenshot_2022-09-28-22-08-51-290_com termux](https://user-images.githubusercontent.com/114341732/192839958-0b035faf-3908-45bc-a69d-13f6887d19e8.jpg)
